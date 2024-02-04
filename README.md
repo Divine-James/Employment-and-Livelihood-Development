@@ -1,3 +1,4 @@
 # Employment-and-Livelihood-Development
 Empowering individuals with disabilities in Africa to acquire marketable digital skills, enhancing their employability and fostering financial independence.
 Empowering individuals with disabilities in Africa is relevant for several reasons, and it aligns with broader principles of social justice, human rights, and sustainable development, empowering individuals with disabilities in Africa is relevant not only for the sake of justice and equality but also for the broader benefits it brings to individuals, communities, and societies as a whole. It fosters a more inclusive, diverse, and resilient society that can collectively address challenges and work towards sustainable development.
+Empowering individuals with disabilities in Africa to have better livelihoods and enjoy vast opportunities in today's digital world
